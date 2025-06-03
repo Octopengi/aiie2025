@@ -1,3 +1,3 @@
-#aiie2025
+#AIIE2025
 
 uwu
